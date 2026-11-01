@@ -1,0 +1,1 @@
+# Projeto_Ada_Analise_Vendas_Supermercado
